@@ -2,5 +2,5 @@
 # a special deploy_dir variable specifies the deployment location using rsync
 
 
-baseurl: http://blog.shindasingh.com
+baseurl: https://blog.shindasingh.com
 deploy_dir: shinda@blog.shindasingh.com:blog.shindasingh.com
