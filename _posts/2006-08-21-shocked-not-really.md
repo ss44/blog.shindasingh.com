@@ -1,0 +1,40 @@
+---
+id: 278
+title: 'Shocked? Not really&#8230;'
+date: 2006-08-21T10:29:05+00:00
+author: Shinda
+layout: post
+guid: http://www.shindasingh.com/blog/?p=278
+permalink: /2006/08/shocked-not-really/
+categories:
+  - Sikhi
+---
+As many of you may or may not have heard, there was some <a href="http://www.mrsikhnet.com/index.php/2006/08/19/shocked-how-low-can-people-go/" target="_blank">rawkus in the UK</a> over the weekend that saw a group of individuals hospitalize members from another. Undoubtedly [many are shocked](http://www.mrsikhnet.com/index.php/2006/08/19/shocked-how-low-can-people-go/#comments) at such brazen - "Sikh on Sikh" violence, but from the sounds of it, wasn't this all a long time coming?
+
+Firstly I'm not condoning the violence, although I'm not against the use of violence to accomplish a means, I do hold that violence should remain a last resort, and a certain level of thought / care needs to be taken before one chooses to cross that line, because rarely is&nbsp;it possible to undo such damage. In other words, once you cross that line, there's no crossing back, so it better be worth it.
+
+Now to the real flesh of the topic, as to&nbsp;why was this all a long time coming. I need to make it clear now that I'm not involved in any way with the Sikh Student camp in the UK, never been there, don't personally know anyone who has, so everything I do know about it, for&nbsp;or against comes from third party sources.
+
+Having talked to various people,&nbsp;my understanding of&nbsp;the Sikh Student camp emerged out of the old BOSS Student Camps when the UK Nihang faction (Niddar Singh and crew), were removed from taking part in any shape or form. This led to the creation of the Sikh Student camps which offered what it and those who support the camps claimed to be, a diverse outlook on Sikhi. Now I don't know how much of an influence Niddar Singh or his minions have on the actual camp but if it's anything like the views expressed on [their website](http://www.sarbloh.info), then we all know how diverse they can be. Also, Niddar Singh and company are no strangers to violence, with news of fights that occur between members of his own group or that of opposing factions emerging yearly whether it be in the UK or stretching as far as&nbsp;India. However, to this degree&nbsp;it has&nbsp;been refuted that Niddar Singh and company have nothing to do with the camps, so I guess we'll just have to take their (those saying such things) word for it,&nbsp;[[to the contrary](http://www.tapoban.org/phorum/read.php?f=1&i=81711&t=80963#reply_81711)]&nbsp;that these two "beefs" are not connected.
+
+Many individuals in recent times have expressed a disgust with the camps, over videos and images that have emerged on the net depicting individuals in&nbsp;a negative&nbsp;light. Whether it was of organizers'&nbsp; [can't&nbsp;say if they are or not]&nbsp;doing there best to [imitate Pac](http://photos1.blogger.com/blogger/5865/1594/1600/itty%20nang.jpg), or dropping [verses like Chamkila](http://www.youtube.com/watch?v=SmRkEnimc_M), it's fair to say that [not everyone was happy](http://www.tapoban.org/phorum/read.php?f=1&i=85028&t=80963), and felt that these few reasons alone were a just means to call for a boycott. 
+
+I would have to give this one to the defendants [Sikh Students], simply&nbsp;because&nbsp;you can't&nbsp;hold the organizers responsible for the actions of a few. The singing and dancing video apparently was&nbsp;done for jokes, and it seems that people are blowing it out of proportion to justify their own means, as for the pictures, not exactly capturing individuals at there finest moments, but again I'll give some of these images the benefit of the doubt that they were being done for jokes, whether or not you share in their sense of humor I'll leave to you.
+
+What raises an alarm with me however are the allegations of harassment and lude behavior towards the Bibian at the camp. These are always serious allegations that require serious attention, but just posting ones claims on message boards does seem rather redundant, as it rarely serves&nbsp;a purpose in solving the problem. 
+
+Now apart from the rest the Sikh Student camp has faced many of these allegations and offered assurances that mistakes of the past will be corrected, yet it seems that they [have gone against their word](http://sikhissues.blogspot.com/2006/08/chigwell-camp.html), based on various articles. If this is the case then one needs to wonder where their [those behind the camp's] motives lie.
+
+[Especially with all the press against the camp](http://sikhissues.blogspot.com/2006/08/uk-jathabandis-call-for-boycott.html) one can't be so naive to the fact that there isn't more then what meets the eye. After all for the major jathebandi's to ask for a boycott of the camp, something serious must be wrong.
+
+Taking all the above into consideration, its hard not to imagine why individuals would want to see the camp closed, but apart from that there's also the Gurmat aspect of it.
+
+Now I'm not against a camp which promotes a Jatha's own view or slant&nbsp;on Gurmat, after all every camps views on Gurmat will be slanted in some&nbsp;manor one way or another.&nbsp;At the same time though, I've never heard of a single&nbsp;Jatha which condones alcohol, cutting of hair, and discouraging people from keeping rehit. Whether they stress the importance of keeping rehit at there camps or not, [has been said that Rehit isn't over emphasized to prevent from scaring away the new comers], discouraging people from rehit is absurd, which has been the case reported by those against the camp.
+
+Looking at the above its easy to find why those against the Sikh Student camp would feel frustrated by the actions [or lack thereof] on the part of organizers to fix these problems. Would this constitute their right to bomb someone's car or jumping them in there driveway, probably not, but it does help serve a better picture of what's really going on.
+
+Lastly, are the victims really the victims? No doubt they are the ones who are suffering from the attacks, but how innocent are they to the whole ordeal? After all, imagine if they simply challenged those against the camp by saying something like, "we're doing this camp one way or another,&nbsp; we dare you try and stop us" or something&nbsp;to that effect,&nbsp;can you really hold it against someone for calling their bluff? 
+
+Again, I'm not here trying to condone the violence, because like I said earlier violence has a time and place, which I really don't feel it did in this situation, but to also paint things black and white, having a good guy and bad guy just doesn't seem fair, since clearly there is a lot of grey area in between.
+
+Finally, in-fighting amongst sikh groups is nothing new, nor the violence between them.&nbsp;There has been in-fighting since the times of the Guru's, and the ways of the elder generations is&nbsp;no deep dark secret. End of the day, we do need to stand up against those who go against the very rudimentary principles of Sikhi, however we do need to leave some&nbsp;flexibility and&nbsp;room for rationality and the ability to agree to disagree. With all the problems facing us, we need to pick and choose our fights, and the amount of energy we exert into each&nbsp;carefully, otherwise we will quickly find ourselves drained&nbsp;with nothing left. Conflicts at the grassroots levels such as Sikhi camps are especially dis-heartening as it sets&nbsp;all parties back when trying to convince parents and youth that they are genuinely interested in helping the kids. One needs look no further then the Bugga camps that used to happen in Ontario in the early 90's. Ever since the corruption and exposure of those camps parents have had to take that extra vigilance before sending there kids to any camp [which they should be doing anyway's], but when it comes to those who just don't have the time, saying no and keeping the kids at home becomes just that much easier.

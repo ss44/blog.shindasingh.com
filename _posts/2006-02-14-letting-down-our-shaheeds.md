@@ -1,0 +1,32 @@
+---
+id: 80
+title: Letting down our Shaheeds
+date: 2006-02-14T17:39:00+00:00
+author: Shinda
+layout: post
+guid: http://www.shindasingh.com/blog/?p=80
+permalink: /2006/02/letting-down-our-shaheeds/
+categories:
+  - Sikhi
+---
+[<img width="163" height="212" border="0" align="right" src="http://www.shindasingh.com/blog/uploaded_images/sodhi1-775139.jpg" />](http://www.shindasingh.com/blog/uploaded_images/sodhi1-778378.jpg)We let down our Shaheeds. Its no dark hidden secret, (although some may act like it is), we let down their families; in turn letting them down as well, how we let them down well its both a confusing labyrinth and a simple line, all at the same time. (Confused? Good, youre on the right track to understanding what I have to say).
+
+During the morcha little thought was given to who had whose back. The concern of what would happen to my family, although a realistic concern wasnt something given to heavy thought. There was this thing called **trust**. Singhs had it. They trusted that the Sangat would look after their wives, their children, their finances, their households. They trusted the fact that _we_ agreed with the need for them to sacrifice their lives and they trusted that we were all on the same page; after all, it was this unison of thought that led them to travel the path that they did.
+
+[<img width="128" height="164" border="0" align="left" src="http://www.shindasingh.com/blog/uploaded_images/amrik-718811.jpg" />](http://www.shindasingh.com/blog/uploaded_images/amrik-721335.jpg)It was only a matter of time though, that those leaders who at one time were making promises to Guru Sahib that _we will fight for the Panth and the Quam_, later found themselves, scampering to the feet of the enemy, with their hands in the air, and tails between their legs surrendering to the same people they promised to fight against. They switched sides, even after all the promises and speechs they had made. This led to the extermination of a few, while others were able to shy away from the bullets.
+
+Secondly the political system failed us. The whole thing about democracy giving power to the voters vanished; instead it gave voters the option of choosing between two evils, the choice of choosing between two different executioners, the choice remained, _how do you want to die? Blind folded or not? From the front or the back? Hung, or shot?_ Instead of fighting for our lives and making cases against our death, we instead started arguing about how we wished to die. We started debating amongst ourselves whether or not we would rather be hung or shot, basically accepting the notion that we deserved to die.
+
+With all that ambiguity the question then fell on what did the Shaheeds who died die for? Was it all in vain? What was the next breed of Shaheeds going to die for? No longer were they dying in retaliation or fighting for the cause of freedom or self preservation, after all how they could be when the so called and self appointed leadership was too busy discussing and debating about how we were wrong and accepted that fact.
+
+So again, that trust was shaken. Leading one to wonder now, if those who had given Shaheedi in the 80s looked at the situation now, would they have given those Kurbanian in the first place, or would they look back and think like Im doing right now that it was in vain?[<img width="163" height="212" border="0" align="right" src="http://www.shindasingh.com/blog/uploaded_images/sodhi1-775139.jpg" />](http://www.shindasingh.com/blog/uploaded_images/sodhi1-778378.jpg)We let down our Shaheeds. Its no dark hidden secret, (although some may act like it is), we let down their families; in turn letting them down as well, how we let them down well its both a confusing labyrinth and a simple line, all at the same time. (Confused? Good, youre on the right track to understanding what I have to say).
+
+During the morcha little thought was given to who had whose back. The concern of what would happen to my family, although a realistic concern wasnt something given to heavy thought. There was this thing called **trust**. Singhs had it. They trusted that the Sangat would look after their wives, their children, their finances, their households. They trusted the fact that _we_ agreed with the need for them to sacrifice their lives and they trusted that we were all on the same page; after all, it was this unison of thought that led them to travel the path that they did.
+
+[<img width="128" height="164" border="0" align="left" src="http://www.shindasingh.com/blog/uploaded_images/amrik-718811.jpg" />](http://www.shindasingh.com/blog/uploaded_images/amrik-721335.jpg)It was only a matter of time though, that those leaders who at one time were making promises to Guru Sahib that _we will fight for the Panth and the Quam_, later found themselves, scampering to the feet of the enemy, with their hands in the air, and tails between their legs surrendering to the same people they promised to fight against. They switched sides, even after all the promises and speechs they had made. This led to the extermination of a few, while others were able to shy away from the bullets.
+
+Secondly the political system failed us. The whole thing about democracy giving power to the voters vanished; instead it gave voters the option of choosing between two evils, the choice of choosing between two different executioners, the choice remained, _how do you want to die? Blind folded or not? From the front or the back? Hung, or shot?_ Instead of fighting for our lives and making cases against our death, we instead started arguing about how we wished to die. We started debating amongst ourselves whether or not we would rather be hung or shot, basically accepting the notion that we deserved to die.
+
+With all that ambiguity the question then fell on what did the Shaheeds who died die for? Was it all in vain? What was the next breed of Shaheeds going to die for? No longer were they dying in retaliation or fighting for the cause of freedom or self preservation, after all how they could be when the so called and self appointed leadership was too busy discussing and debating about how we were wrong and accepted that fact.
+
+So again, that trust was shaken. Leading one to wonder now, if those who had given Shaheedi in the 80s looked at the situation now, would they have given those Kurbanian in the first place, or would they look back and think like Im doing right now that it was in vain?_ Did we let our Shaheeds down?

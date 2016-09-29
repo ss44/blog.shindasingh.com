@@ -1,0 +1,20 @@
+---
+id: 287
+title: 'You&#039;re Nobody Till Somebody Kills You..'
+date: 2006-09-15T16:08:40+00:00
+author: Shinda
+layout: post
+guid: http://www.shindasingh.com/blog/?p=287
+permalink: /2006/09/yourre-nobody-till-somebody-kills-you/
+categories:
+  - News
+---
+or in Kimveer's case, you kill somebody. If you read the news, then you know by now that there was a school shooting in Montreal's Dawson College 2 days ago. Labeled Canada's Columbine, the press have already jumped on the fact that Kimveer Gill was a desi and are sparing no affiliation they can make to him or any link they can make to other groups&nbsp;to blame&nbsp;for not only his actions but also his death. First it was the Goth scene and the [Goth website](http://www.vampirefreaks.com)&nbsp;that he <a href="http://www.shindasingh.com/blog/wp-content/uploads/2006/09/WindowsLiveWriter/YourreNobodyTillSomebodyKillsYou_D8F5/853606941.jpg" atomicselection="true"><img style="border-top-width: 0px; border-left-width: 0px; border-bottom-width: 0px; margin: 0px 0px 5px 10px; border-right-width: 0px" height="190" src="http://www.shindasingh.com/blog/wp-content/uploads/2006/09/WindowsLiveWriter/YourreNobodyTillSomebodyKillsYou_D8F5/8536069_thumb51.jpg" width="240" align="right" border="0" /></a> frequented, and as&nbsp; [Panthic Otpreka](http://thepanthicotpreka.blogspot.com) wrote, they wasted no time in maligning him with the Sikh Faith. Ironically enough having gone through [Kimveer's user profile](http://vampirefreaks.com/u/fatality666) on Vampire Freaks he associated himself closer with Satanism, so my question is why has he been labeled a Sikh over a Satanist? The Goth link I can understand, after all its a culture of darkness, with a prominent look on death, but how do you call this guy a Sikh based on his name? Why not link us with Vijay Singh, or Kendal Gill for that case also.
+
+Another interesting twist the media put on his _character_ is that when the [Toronto Star](http://www.thestar.com) produced images from [his blog](http://vampirefreaks.com/gallery.php?u=fatality666) on the front page, they included some of the captions such as the ones that read 'Anger And Hatred Simmers Within Me'&nbsp; and upon first reading you'd figure this guy was psychotic right from the start, so why didn't the website, or his friends report him to the authorities?&nbsp;After seeing the entire gallery its clear that&nbsp;he was just messing around,&nbsp; with his digital camera, and whatever titles he did have, where done so for jokes or just go with the pic's. At the same time that's not to say he wasn't in some way off of&nbsp;his game, but to make a story from things that aren't there, you'd expect a tad bit more tact.
+
+I know it's the media's responsibility to **report** the story, but it seems like the story is being&nbsp;written on the basis of theories and speculation created by his website then nothing else. For example, 'He Loved Guns therefore he was a deranged lunatic.'. So liking guns makes one evil? How many Singh's do you know that haven't at one point had an AK-47 as there display pic. Fair enough society needs something to blame this on, a video game, movie or music, but why not blame the one thing that really caused this whole thing....anger. Clearly he was angry. At who?&nbsp;well let the police sort that out,&nbsp;but reading&nbsp;the comments on his blog&nbsp;and from TV interviews, it could have&nbsp;very well been society. 
+
+"But not everyone who's angry goes out and shoots up a school". Fair enough but you push someone to that point and I'm sure they will.
+
+Anyway's after reading all that there was about this guy, he was a loner, clearly had some social problems, none the less the fact that his profile and image were front page on the Toronto Star,&nbsp;the fact that he got 200+ comments in his user profile that&nbsp;normally wouldn't have gotten more then 1 or 2&nbsp;hits goes to show that you truly are nobody till somebody kills you, or in his case you kill somebody in a rampant rage.

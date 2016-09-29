@@ -1,0 +1,66 @@
+url: http://blog.shindasingh.com/
+name: ShindaSingh.com 
+description: "Blog. With a B. v.2.16.8"
+
+# Build settings
+gems:
+  - jemoji
+  - jekyll-paginate
+
+exclude: ['Rakefile']
+
+theme: "mediator"
+
+# Site settings
+email: shinda@gmail.com
+#blog logo
+logo: "/assets/images/ss_logo.png"
+# blog cover
+cover: "/assets/images/cover.2016.09.27.jpg"
+
+name: 'Shinda Singh'
+author: 'ShindaSingh'
+author_image: "http://res.cloudinary.com/demo/image/facebook/10154701979805300.jpg"
+
+paginate: 5
+
+# url: "http://blog.shindasingh.com" # the base hostname & protocol for your site
+# baseurl: "http://blog.shindasingh.com"
+
+#used to display twitter cards
+twitter_handle: '@shindasingh'
+
+#fill in disqus shortname to use disqus
+disqus: blog-shindasingh-com
+
+# social icons and sharing options
+social:
+  - icon: twitter
+    url:  https://twitter.com/shindasingh
+    desc: Follow me on twitter
+    share_url: http://twitter.com/share
+    share_title: ?text=
+    share_link: "&amp;url="
+
+#  - icon:  facebook
+#    url: https://facebook.com/???
+#    desc: Connect with me facebook
+#    share_url: https://www.facebook.com/sharer.php
+#    share_title: ?t=
+#    share_link: "&amp;u="
+
+  - icon: github
+    url:  https://github.com/ss44
+    desc: Fork me on github
+    share_url:
+    share_title:
+    share_link:
+
+#  - icon:  google-plus
+#    url: https://google.com/???
+#    desc:  Add me on google+
+#    share_url:
+#    share_title:
+#    share_link:
+
+

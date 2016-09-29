@@ -1,0 +1,29 @@
+---
+id: 409
+title: Cultural Politcs or Political Fear
+date: 2007-06-30T16:09:15+00:00
+author: Shinda
+layout: post
+guid: http://www.shindasingh.com/blog/?p=409
+permalink: /2007/06/cultural-politcs-or-political-fear/
+categories:
+  - Sikhi
+  - Video
+---
+It didn't take Rex Murphy and his crew of merry men at the CBC to once again jump on the whole Nagar Kirtan thing, even if it is only a few months later. Nonetheless as with most other things, the latest CBC special helped highlight the real problem and there real motives.
+
+Firstly I'll give Rex some credit, at least this time around he made an effort to properly identify the various groups. i.e not labeling theKhalsa School Gatka Akhara as being members of the ISYF, but apart from that he seemed to really just be out shit it up.
+
+Ignoring the obvious angle that is being displayed, Sikh Separatism = Air India, it was more interesting to watch the shots that the CBC directed at the prodigal son, M.P from Brampton, Mr.Navdeep Singh Bains himself.
+
+Its weird that on one hand you have the Toronto Star, who only months ago was all about lamenting Navdeep's success in politics, especially after his pivotal role in the leadership race, on the other you have the CBC going after the WSO and painting a dotted line that points right to Nav, highlighting the fear that they have of him gaining any power and influence on both the federal and provincial scene.
+
+What was really notable to watch was how the CBC attempted to perform the Kansas City shuffle, making us look one way while they went the other. For the most part I think they did skillfully accomplish this thanks in large part to none other then Mr.Ujal Dosanjh . A perfect selection because he seems to be the one person who may actually have a vested interest against the so called separatist agenda and nothing more, and lets not forget that he himself after all is a "moderate Sikh", (moderates the new buzz word that equates to good). But while the media tries to play us with a Kansas City shuffle one needs not get distracted by everything else that's going on and recognize what this really is, an internal political struggle. Back in November,Dosanjh backed Bob Rae, while Nav has been noted for securing the victory for Dion, which has many speculating a Ministerial role for Mr Bains , if the Liberals get back in power. Of course at this point that remains a big IF, but all the same a liberal government would mean that former Health MinisterDosanjh is thrown back to the backbenches, replaced instead by the great brown hope. So it's obvious that there is a vested interest to seeBain's clout and creditability get tarnished. After all you're going to need someone as minister and if you can get the public and media againstBains then selecting him would definitely get a lot of unwanted attention on Dion and the party, don't forget the earlier attempts made by the Vancouver media and the Federal Conservatives as trying to paintBains as having 'terrorist' links. (It works for the Conservatives since they want to try and damage Bains to try and loosen his grip on his riding, so they can sneak in some desi to make a strong run at him). Yet, with all these subtle jabs at Bains (the bus load of delegates coming to the convention, the delegates not freely voting, etc.), the CBC still chose not to interview the man himself. One would think that after the CBC chose to go afterBains the way they did they would at the very least have given him the courtesy to say his peice, but then again that wouldn't have served their modus operandi.
+
+Furthermore its always disheartening when the publicly funded news station chooses to rock a one sided approach in their media coverage, such as the fact that the CBC grabsmonay to represent the "moderate" voice of Sikhi, at the very least grab a sardar, some missionary scholar or something, but stop trying to use those who haven't made the forward steps toward Sikhi as the voices of the Sikh nation, there go painting a picture that anyone who is a Singh is by virtue an extremist. Something about Doasnjh or Hayer being my Sikh voice in parliament and to the rest of Canada is just wrong.
+
+As for everything else, the portrayal of Sikhs as being evil militants, etc. doesn't and shouldn't come as much of a surprise. It is however ironic and somewhat hypocritical to demonize Sikhs for all the weaponry depictions when it's a mace (a weapon) that is used to open up Parliament and is found on most government insignia. Furthermore about the Air India link, it's only fair to note that the RCMP's primary suspects were acquitted with no case made against them. As for Parmar, seems like a matter of convenience more then anything else considering Parmar was never tried nor allowed a defense, but hey I guess if they can get the shoe to fit then why not go with it.
+
+Anyways, it should be interesting to see the follow up that I'm sure the CBC will prepare. Hopefully WSO won't let this go without a fight and seeing as how they are the only real established organization we have as Sikhs in Canada, will get the Sangat's support in this matter.
+
+Lastly shout out to Manjot Singh aka Dark Fusion, for getting some national air time for his Gatka performance aired all over Canada on National TV. Also for those wanting a more in depth analysis on whats happened in regards to the media bias make sure you check out the [BC Sikh Youth website](http://www.bcsikhyouth.com/2007/cbcs-most-defamatory-fraudulent-innaccurate-report-on-sikhs-ever/) who prepared a list of the lies and mis-truth's being spurred by the CBC's coverage on their website [[BCSikhYouth.com](http://bcsikhyouth.com/)].

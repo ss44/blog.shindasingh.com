@@ -1,0 +1,29 @@
+---
+id: 361
+title: Man in the Black Coat
+date: 2007-03-02T02:30:02+00:00
+author: Shinda
+layout: post
+guid: http://www.shindasingh.com/blog/?p=361
+permalink: /2007/03/man-in-the-black-coat/
+categories:
+  - Politics
+  - Procrastinating Thoughts
+  - Protest
+  - Tech
+---
+I've always held that as we grow older, we grow dumber. I know that it sounds ironic, considering we're always learning new things and constantly evolving our understanding of the world around us, but at the same time we continuously throw out the very fundamentals that our knowledge and education is based upon. A prime example and proof of this is the newest game show to flood the air waves,<a title="Are You Smarter Then a 5th Grader" style="font-style: italic" href="http://en.wikipedia.org/wiki/Are_You_Smarter_Than_a_Fifth_Grader%3F">Are You Smarter Than a 5th Grader</a><span style="font-style: italic">, </span>which has educated individuals (graduates of various majors) answering questions that span from grades 1 to 5, in a <a title="Jeopardy" style="font-style: italic" href="http://en.wikipedia.org/wiki/Jeopardy%21">Jeopardy</a> meets <a title="Who Wants to be a Millionaire" style="font-style: italic" href="http://en.wikipedia.org/wiki/Who_Wants_To_Be_A_Millionaire%3F">Who Wants to be a Millionaire</a> type cross over. For instance, in one episode a UCLA American History Major lost with the question, "Who was the first American President to be impeached?", his answer isn't important but its suffice to say that he got it wrong, and was embarrassed on national TV. Or for instance the time that I was able to convince one of my boys, (a third year bio chem student), to write my first year intro to chem exam only for him to to go in and completely bomb it.
+
+Point being, as we grow older we tend to gain a sense of false pride with what we really don't know, that we overlook and realize that we really didn't understand things all that well to begin with, rather we temporarily knew enough to get by on. Now this makes perfect sense for school after all why stress, as long as it gets your name on a diploma or degree, after all that's what really counts, isn't it? But our growth of stupidity goes well beyond school and extends far into the real world, especially when it comes down to our privacy and security.
+
+For instance it's hammered into our heads as kids to never talk with strangers, since we never really know their intentions or if they even are who they say they are, but at the same time, how many times have we read or heard about fraudsters posing as someone who they aren't and scamming some poor couple out of their entire life savings, leaving them broke and on the streets. Or the one about never taking gifts from strangers or how about the one that one that really inspired this post, what about the whole never revealing your personal info in public chat rooms since it may lead to pedophiles, stalkers or even thieves to use information they gain to potentially cause you grief. Off course it makes perfect sense when we're teaching these lessons to to the little ones, come on now with all the pedophiles and stalkers out their its only logical to not give away your personal details, but then why is that the second most people grow into their teens and into adults they feel these rules no longer apply to them?
+
+Social networking sites such as [facebook](http://www.facebook.com/ "facebook"), [hi5](http://www.hi5.com/ "hi5"), [myspace](http://www.myspace.com/ "myspace") and the lot have people revealing not only their names, but their numbers, addresses, schedules and even who they know and how they know them, and revealing nothing short of their past history. After all it's that sense of community which drives these sites to be successful in the fist place. But what if someone wants to use this info against you? You're basically giving away personal security information, leaving anyone inept enough in social hacking to go out and pretend to be you to someone else, getting information about you that you would be alarmed to find out they could. Then again how one can go about using information on these sites to hack is worthy of its own post.
+
+So it isn't that far of a stretch of ones imagination to think about <span style="font-style: italic">'what if</span>' this information was used as a voluntary means to watch over or to learn everything about you and to basically know you so well that <span style="font-style: italic">they</span> could predict your behaviour. That idea alone is enough to send shivers down the spines of most civil libertarians and drive many to put on tin foil hats. What if there was that proverbial man in the black coat lurking in the shadows, using such sites to watch over and monitor you? Having you voluntarily hand over your life history, in the guise of a social networking site, while selling your soul [or at least all the info they have] to the big corporations who then use the said information to continue to drive the capitalistic engine using you as nothing more then fuel for the fire. Agreed that such conspiracy theories are often far fetched over whelming and nothing more then fear mongering against the <span style="font-style: italic">king of the hill, </span>but at the same what if there was some truth to all the above?
+
+To that end I found this video that may act as an eye opener for many of you, and may make you realize how much closer we are to the above then you would want to think.
+
+[<img alt="pic.gif" id="image360" src="http://www.shindasingh.com/blog/wp-content/uploads/2007/03/pic.gif" />](http://albumoftheday.com/facebook/ "Do You have a Facebook")
+
+Seeing the above it should be obvious if not a bit amazing all at the same time as to how much more we know,the more we really seem to forget.
