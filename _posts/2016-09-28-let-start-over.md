@@ -3,7 +3,7 @@ title: Let's start over..
 date: 2016-09-28T21:30:00+00:00
 author: Shinda
 layout: post
-permalink: /2016/09/28/starting-over
+permalink: /2016/09/28/starting-over/
 image: /wp-content/uploads/2016/09/blow_it_all_up_by_mk01.jpg
 image2: /wp-content/uploads/2016/09/blow_it_all_up_by_mk01.jpg
 ---

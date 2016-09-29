@@ -7,7 +7,7 @@ gems:
   - jemoji
   - jekyll-paginate
 
-exclude: ['Rakefile']
+exclude: ['Rakefile', 'Gemfile', 'Gemfile.lock']
 
 theme: "mediator"
 
