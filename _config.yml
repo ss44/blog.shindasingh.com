@@ -1,9 +1,9 @@
 url: https://blog.shindasingh.com/
-name: ShindaSingh.com 
+name: ShindaSingh.com
 description: "Blog. With a B. v.2.16.8"
 
 # Build settings
-gems:
+plugins:
   - jemoji
   - jekyll-paginate
 
